@@ -1,5 +1,5 @@
 - 🌱 Interested in learning Open Source
-- 📫 How to reach me sohamsk14@gmail.com
+- 📫 How to reach me sohamsk14@gmail.com / +918530827204
 - 📄 Resume [Link](https://drive.google.com/file/d/1iwWbcNopq0E3YtHIv3XBmqGPnNnoAH55/view?usp=drive_link)
 
 
